@@ -14,7 +14,7 @@
  
 <br>
 
- ### Pra conteúdo sobre programação nas redes abaixo!
+ ### Para mais conteúdo sobre programação me segue nas redes abaixo!
  
 <div> 
  
